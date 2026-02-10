@@ -1,0 +1,1 @@
+# benim-kredim-privacy
